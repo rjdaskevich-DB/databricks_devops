@@ -1,1 +1,0 @@
-This is is really cool app. 
